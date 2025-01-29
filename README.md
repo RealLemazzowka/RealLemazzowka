@@ -1,7 +1,1 @@
-- 👋 Hi, I’m @RealLemazzowka
-- 👀 I’m interested in idk
-- 🌱 I’m currently learning idk
-- 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me discord: real.lemazzowka_
-- 😄 Pronouns: kosiarka akumulatorowa
-- ⚡ Fun fact: hahah
+Hej!!!
